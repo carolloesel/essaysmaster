@@ -1,0 +1,2 @@
+# essaysmaster
+Conscious academic writing
